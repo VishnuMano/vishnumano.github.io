@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+Hi. I'm Vishnu.
 
-Maybe say a some things about yourself.
+I am currently studying Mathematics and Computer Science and Georgia Tech.
 
-Or maybe what you plan to blog about.
+I have a lot of thoughts on Math, Philosophy, and Tech.
+
+Here are a few of them:
